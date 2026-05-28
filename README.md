@@ -1,38 +1,29 @@
  <p align="center">
-<img width="50" alt="realitystone" src="https://github.com/user-attachments/assets/77413251-3491-4606-a616-c179cfb04dfd" />
+<img width="25" height="24" alt="asgardemblem" src="https://github.com/user-attachments/assets/0d84b4f7-5d54-4cc2-bc78-5ef4236eeb11" />
 
 <p align="center">
-  $\color{#b11213}{\textsf{𝐑𝐮𝐧 𝐚𝐰𝐚𝐲 𝐛𝐮𝐭 𝐭𝐡𝐞𝐫𝐞 𝐰𝐢𝐥𝐥 𝐛𝐞 𝐛𝐥𝐨𝐨𝐝 𝐭𝐨 𝐠𝐨 𝐚𝐫𝐨𝐮𝐧𝐝.}}$
+  $\color{#c0b58d}{\textsf{𝐂𝐡𝐞𝐞𝐫𝐬, 𝐭𝐨 𝐭𝐡𝐞 𝐞𝐧𝐝 𝐨𝐟 𝐭𝐡𝐞 𝐰𝐨𝐫𝐥𝐝.}}$
 
 
    <p align="center">
-<img width="140" src="https://komarev.com/ghpvc/?username=moonflowerSilver&label=Nexus+Beings&color=0a0901">
+<img width="140" src="https://komarev.com/ghpvc/?username=house-of-odin&label=Royal+Advisors&color=ccb063">
 
- <div align="center">
-  
-ʀᴇᴀᴅ ᴍʏ [ᴘᴀᴛʀᴇᴏɴ](https://www.patreon.com/posts/intro-byi-147476869) ʙᴇꜰᴏʀᴇ ʏᴏᴜ ɪɴᴛᴇʀᴀᴄᴛ.
+  <div align="center">
 
-<p align="center">
-<img width="700" src=https://github.com/user-attachments/assets/5e374c01-6380-4599-80b5-8774c0403657>
-
- <div align="center">
+[Pronouns.cc](https://pronouns.cc/@house-of-odin)
 
 
-${\textsf{\color{#4f0736}ㅤㅤ🗡ㅤㅤ}}$
-[StrawPage](https://ikollaufeyson.straw.page/)
-${\textsf{\color{#32cd32}ㅤㅤ🐍ㅤㅤ}}$
-[Atabook](https://ikol.atabook.org/)
-${\textsf{\color{#32cd32}ㅤㅤ🐍ㅤㅤ}}$
-[Lovemail](https://ikollovemail.straw.page/)
-${\textsf{\color{#32cd32}ㅤㅤ🐍ㅤㅤ}}$
-[Kin List](https://pronouns.cc/@.ikol)
-${\textsf{\color{#4f0736}ㅤㅤ🗡ㅤㅤ}}$
 
   <p align="center"> 
   $\tiny\textcolor{gray}{\textsf{I block freely.}}$
 
-<p align="center"> 
-  $\tiny\textcolor{gray}{\textsf{ᛁ ᛞᛟᚾᛏ ᚠᛖᛖᛚ ᛒᚨᛞ ᚠᛟᚱ ᛃᛟᚢ ᚲᚨᚢᛋᛖ ᛁ ᚲᚾᛟᚹ ᛁᚠ ᛃᛟᚢ ᚲᛟᚢᛚᛞ ᛋᚹᛁᛏᚲᚺ ᚦᛁᛋ ᛃᛟᚢᛞ ᛒᛖ ᛞᛁᛋᚺᛁᚾ ᛟᚢᛏ ᚦᛖ ᛋᚨᛗᛖ ᛋᚺᛁᛏ}}$
-
 <p align="center">
-<img width="25" height="24" alt="asgardemblem" src="https://github.com/user-attachments/assets/0d84b4f7-5d54-4cc2-bc78-5ef4236eeb11" />
+<img width="960" height="400" alt="fab3872f79f56f23106c7611214edf81" src="https://github.com/user-attachments/assets/3ccbc81f-882c-4896-93dd-59b7caac252c" />
+
+
+
+<p align="center"> 
+  $\tiny\textcolor{#639e47}{\textsf{ᚹᛖ ᛞᛟᚾᛏ ᚾᛖᛖᛞ ᛋᚲᚱᛁᛈᛏᚢᚱᛖ ᚹᛖ ᛞᛟᚾᛏ ᚾᛖᛖᛞ ᛋᛈᛖᛚᛚᛋ ᚲᚾᛟᚹᛚᛖᛞᚷᛖ ᛁᛋ ᛈᛟᚹᛖᚱ ᛞᚱᚨᚹᚾ ᚠᚱᛟᛗ ᚨ ᚹᛖᛚᛚ}}$
+
+
+
