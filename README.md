@@ -10,8 +10,6 @@
 
   <div align="center">
 
-[Pronouns.cc](https://pronouns.cc/@house-of-odin)
-
 
 
   <p align="center"> 
